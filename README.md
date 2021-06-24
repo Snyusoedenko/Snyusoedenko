@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Snyusoedenko
+- I’m interested in nothing
+- Send an mail to gvszzhl@gmail.com or my Telegram: @IP_HL
